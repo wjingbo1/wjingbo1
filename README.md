@@ -47,5 +47,5 @@
 - 第八届“互联网+”大学生创新创业大赛 省级铜奖
 
   
-![image](https://github.com/wjingbo1/wjingbo1/assets/78008289/d8a80b43-4520-4c93-8ffc-79a17e157f42)
+交个朋友 👬🏻
  I love to make friends. so if you want to say hi, I'll be happy to meet you more! 😊
